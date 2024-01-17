@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @FanHuaLuoJinGuaiJiao
 - 👀 I’m interested in art
-- 🌱 I’m currently learning math
+- 🌱 I’m currently learning how to improve myself
 - 💞️ I’m looking to collaborate on myself(temporary)
 - 📫 How to reach me 15211320393@163.com
 - 😄 Pronouns: ...
